@@ -1,1 +1,1 @@
-# TeamGravity's Website Go Fuck yourself and go to https://epik123.github.io/TeamGravity
+# TeamGravity's Website go to https://epik123.github.io/TeamGravity
